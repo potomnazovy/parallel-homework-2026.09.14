@@ -1,3 +1,4 @@
 а вот и бэнгер рисунок)
 
-![Uploading telegram-cloud-photo-size-2-5285235619313427300-y.jpg…]()
+![Uploading Снимок экрана 2026-09-16 в 19.04.54.png…]()
+
